@@ -1,0 +1,1 @@
+# mangystaugo.github.io
